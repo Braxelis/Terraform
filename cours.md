@@ -1,0 +1,1 @@
+https://cours.static.ia86.cc/
